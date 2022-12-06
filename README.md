@@ -21,4 +21,4 @@ Estou no primeiro ano de Ciência da Computação e estudando tecnologias para d
 
 ## Formas de contato
 - [annabeatrizdemoraes2424@gmail.com](annabeatrizdemoraes2424@gmail.com)<br>
-- [Discord para interação](https://discord.gg/EZKPYVbQ)
+- [CH4P3LEIR4#1264](https://discord.gg/EZKPYVbQ)
