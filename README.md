@@ -17,7 +17,7 @@
 
 </div>
 <br/>
-Estou no primeiro ano de Ciência da Computação e estudando tecnologias para desenvolvimento web. 👾
+Estudante de Ciência da Computação e de tecnologias para desenvolvimento web. 👾
 
 <br/>
 
